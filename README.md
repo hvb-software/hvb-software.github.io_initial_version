@@ -1,1 +1,1 @@
-Visit [HVB.software](http://HVB.software)
+Visit [HVB.software](https://HVB.software)
